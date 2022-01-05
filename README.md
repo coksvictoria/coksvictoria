@@ -1,7 +1,7 @@
 ### Hi there, I'm Alex - aka [coksvictoria][website] 👋 
 
 
-## I'm a Husband, Father and Data Scienst!
+## I'm a Husband, Father and Data Scientist!
 
 
 - 🌱 I’m currently learning everything 
